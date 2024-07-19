@@ -1,2 +1,2 @@
-# Raccourcie_code-
-je me suis faits de raccourcie code au débuts 
+# Raccourci code
+Je me suis fait des raccourcis code au début de ma formation
